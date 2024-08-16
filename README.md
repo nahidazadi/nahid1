@@ -1,6 +1,6 @@
 ` `به نام خدا
 
-![](images/Aspose.Words.6b464f6e-da29-46bb-bdd4-6def853a0069.001.png)
+![](Aspose.Words.6b464f6e-da29-46bb-bdd4-6def853a0069.001.png)
 
 ` `ناهید ازادی چگنی
 
